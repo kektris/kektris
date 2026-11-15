@@ -1,1 +1,1 @@
-Have taken up DJing
+Quitted coding, im a DJ now.
