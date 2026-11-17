@@ -1,1 +1,1 @@
-Quitted coding, im a DJ now.
+hi there
